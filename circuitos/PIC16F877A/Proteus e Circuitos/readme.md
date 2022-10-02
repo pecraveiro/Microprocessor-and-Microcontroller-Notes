@@ -1,1 +1,1 @@
-![github-circuito](https://user-images.githubusercontent.com/79882049/193434544-051f8d1d-4297-4ba6-bf95-695aced3f838.PNG)
+![github-circuito1](https://user-images.githubusercontent.com/79882049/193434607-88e1c40d-b672-4aca-9081-db32dae6ecbd.png)
